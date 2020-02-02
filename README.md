@@ -1,1 +1,1 @@
-# tippeninDeutsch
+# tippen-in-Deutsch
